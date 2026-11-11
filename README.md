@@ -1,5 +1,3 @@
-📅 Aangemaakt: 11-11-2026
-
 # Hey there! 👋
 > [LinkedIn](https://www.linkedin.com/in/jelle-de-vreeze/) [Mail me](mailto:jelle@openbrein.org)
 
